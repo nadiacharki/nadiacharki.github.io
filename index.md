@@ -3,6 +3,6 @@ I am a Rural Engineer, which is equivalent to a Hydraulic Engineer, having gradu
 
 * GitHub: [@nadiacharki](https://github.com/nadiacharki)
 * LinkedIn: [Nadia CHARKI](https://www.linkedin.com/in/nadia-charki-b10a36185/)
-* Email: [n.charki97@gmail.com](n.charki97@gmail.com)
+* Email: n.charki97@gmail.com
 
 
